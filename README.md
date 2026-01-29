@@ -28,3 +28,5 @@ Plus, these projects are all insignificant.
 ## Socials (Just Discord)
 - @woodandgrain
 - Oh, and good luck trying to find me anywhere else. I have no username continuity.
+
+### No, I don't have a dog.
